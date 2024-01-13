@@ -1,4 +1,4 @@
- When you climb high, you know the mountains are high.
+  When you climb high, you know the mountains are high.
 It sounds really good. Since the day I found my sweet lover, I've realized that I'm very good.
 But it's pleasing to the eye
 No matter how much money I make, I spend it on my girlfriend.
@@ -163,7 +163,7 @@ If you're looking for a bit more luxurious items, you have to move to this area 
 The seller said each fish here is worth $200 or more.
 Equivalent to nearly 5 million Vietnamese dong.
 Not only on display, but today at the exhibition, there is also a competition for the most perfect pet.
-And before our eyes, we are the champion with an extremely unique appearance.
+And before our eyes, we are the champions with an extremely unique appearance.
 The owner said it was the result of the breeding process.
 In general, just looking at it made me want to give it an award.
 That's the prize for animals. In addition, this exhibition also honors the masters who build tanks.
@@ -182,7 +182,7 @@ Each one is yours. You must have enough patience and love.
 Immense Animal love.
 Otherwise, you will get frustrated very quickly.
 In the next section.
-According to the exhibition will be held.
+The exhibition will be held.
 Before the charity program.
 Each person.
 When bringing a pet here, they will bring an item they consider valuable to donate to the Organizing Committee.
@@ -192,7 +192,7 @@ waiting for help.
 At a corner of the exhibition, he came across the booth of a guy wearing glasses. He approached and asked, and he learned that most of the animals here were caught from a natural waterfall in the mountains.
 If you had a lot of money, you would probably support Some.
 Meanwhile, the booth next door is owned by a famous YouTuber.
-But specifically how famous he is 08 I don't know.
+But specifically how famous he is, I don't know.
 I just saw what he said.
 This guy mainly raises species
 Aquatic and most are hybrids..
@@ -213,7 +213,7 @@ Simply devoted to what is called passion. And now it seems that Mr. 08 has just 
 of today already.
 Perhaps this will be the most wonderful creature he can buy.
 Until now, however, I still don't want to say goodbye to everyone.
-Thank you for watching and accompanying reviewTV channel.
+Thank you for watching and accompanying the reviewTV channel.
 All this time
 Don't forget to continue supporting reviewTV in the coming time.
 goodbye All of you
